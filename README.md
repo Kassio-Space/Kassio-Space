@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Kassio
--    My pronouns are He/him, They/them
+-    My pronouns are She/her, They/them
 - 👀 I’m interested in Mecha, Sci-fi books/films, writng, drawing
 - 🌱 I’m currently learning concept art, coding, suomi, german, mandarin, japanese
 - 📫 How to reach me : Twitter, only there
